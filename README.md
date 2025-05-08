@@ -37,7 +37,6 @@ I build scalable systems that automate operations and boost revenue — from AI-
 
 🤝 Open To -
 
-🤝 Open To
 High-impact freelance projects (Tech & Business Automation)
 
 Startup roles with strong product vision and collaborative teams
